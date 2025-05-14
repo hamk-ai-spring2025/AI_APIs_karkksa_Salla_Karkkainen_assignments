@@ -1,0 +1,1 @@
+# AI_APIs_karkksa_Salla_Karkkainen_assignments
